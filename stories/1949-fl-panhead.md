@@ -44,6 +44,7 @@ But now she had no gun, no voice, hidden in the shadows, an old woman, forced to
 _Maybe I should have named her after a less tragic character._
 
 
+
 After a while Esmeralda was mercifully taken apart, in piles and on pallets and some parts taken away for special handling, as far as she could guess. The mechanics took a long, vulgar smoke break. Mrs. E hoped that the bike’s parts would carry some scraps of that good personality to their eventual destinations.
 
 She thought vaguely that she ought to be crying, but inside her were no tears, just a dull dry ache. She wondered whether she should leave, but something told her that she wasn’t done watching yet.
