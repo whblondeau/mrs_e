@@ -43,8 +43,7 @@ But now she had no gun, no voice, hidden in the shadows, an old woman, forced to
 
 _Maybe I should have named her after a less tragic character._
 
-
-
+<br />
 After a while Esmeralda was mercifully taken apart, in piles and on pallets and some parts taken away for special handling, as far as she could guess. The mechanics took a long, vulgar smoke break. Mrs. E hoped that the bike’s parts would carry some scraps of that good personality to their eventual destinations.
 
 She thought vaguely that she ought to be crying, but inside her were no tears, just a dull dry ache. She wondered whether she should leave, but something told her that she wasn’t done watching yet.
@@ -71,7 +70,7 @@ And so it went. To Mrs. E’s bafflement, they started sorting through dismember
 
 Then Mrs. E understood. _They’re not parting it out. Fucking assholes are _customizing_ my bike._ It was a brief sick feeling, like realizing… like realizing a beloved relative had been harvested to build a Frankenstein’s monster. She started to shake, and hoped none of them would come up into the loft.
 
-
+<br/>
 It was kind of weird, when the criminal mechanics started to work on the rebuild. The shouting and swearing and banter fell off, and they moved with focus. Even Fat Fuck got that look: the look that Amy Lucero, who taught Art, got when she was sculpting with no kids around.
 
 And somebody put music on. It wasn’t even the dumb dinosaur rock that Mrs. E would have expected out of this crew: it was a mix of swing, surf guitar, and biker rock, all of it drum-heavy, almost ritualistic in its propulsive rhythms. The mechanics moved with it, a little like dancers.
@@ -102,7 +101,7 @@ Mrs. E felt that she was really losing it, psychotic break, bad bad...
 
 And then she woke up, sitting bolt upright in her own damn bed, feeling like she was about ready to stroke out. Thin predawn light came in through the window. There were the cigarettes at least, right on the bedside table. And a glass of water, which her parched mouth really needed.
 
-
+<br/>
 She’d been having increasingly bad, vivid dreams, but this one had been a whole new level of weird. She had something wrong with her.
 
 Well, she knew what she had to do. Dressed, caffeinated, hydrated, travel rucksack slung over her shoulder, she went out the back door, and across the damp grass to to the shed Esmeralda stayed in. After that nightmare, she needed to get the reassurance of reality. She needed to touch the bike, start the engine, listen to the slow loping kick of it. She needed to ride Esmeralda. A long damn ride, and it was a good day for it. The morning was so clear. The dark sky was flushing with pale light, the stars still faint and the few hard feathers of cloud starting to kindle, to burn red along the edges.
@@ -123,7 +122,7 @@ _“No, dear. _I_ died. Your time is not yet, but maybe soon. I hope soon.”_
 
 _“Because when they put me back together, they did it so that I can travel all kinds of places that you can’t go yet.”_ A weird dry little cough. _“Not until you get a new body too… listen, my voice hurts. I really can’t talk too much more right now. Can we go for a ride please?”_
 
-Mrs. E walked into the shed, and touched Esmeralda’s rakish handlebars lightly. She drew her hand back suddenly and then placed it firmly on the bike. Yes this was Esmeralda. Not just the voice but the touch. Something tight and aching lifted out of her chest. She swung a leg over, walked the bike backwards out of the shed. It was easy: the new Esmeralda was lighter.
+Mrs. E walked into the shed, and touched Esmeralda’s rakish handlebars lightly. She drew her hand back suddenly and then placed it firmly on the bike. Yes, this was Esmeralda. Not just the voice but the touch. Something tight and aching lifted out of her chest. She swung a leg over, walked the bike backwards out of the shed. It was easy: the new Esmeralda was lighter.
 
 She set the key and kicked down on the starter with practiced ease. Esmeralda had never been hard to start, but now the big panhead engine rolled over easily and settled into a sweet, slow thumping.
 
