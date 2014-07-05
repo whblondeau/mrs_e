@@ -75,7 +75,7 @@ It was kind of weird, when the criminal mechanics started to work on the rebuild
 
 And somebody put music on. It wasn’t even the dumb dinosaur rock that Mrs. E would have expected out of this crew: it was a mix of swing, surf guitar, and biker rock, all of it drum-heavy, almost ritualistic in its propulsive rhythms. The mechanics moved with it, a little like dancers.
 
-This strange shift from crude rough competence to intense purpose disturbed Mrs. E. Who are these people anyway? What are they doing? She was more afraid than ever that they might discover her. She might be able to talk a gang of ordinary crooks down—English teachers know a thing or two—but she suddenly had no confidence that she could think of any way to deal with this discipline and confidence.
+This strange shift from crude rough competence to intense purpose disturbed Mrs. E. _Who_ are _these people anyway? What are they doing?_ She was more afraid than ever that they might discover her. She might be able to talk a gang of ordinary crooks down—English teachers know a thing or two—but she suddenly had no confidence that she could think of any way to deal with this discipline and purpose.
 
 Her still smoldering grief and rage aside, she found herself becoming fascinated. They worked so swiftly, but without any haste. The rebuilt bike came together before her eyes. She seemed to drift, in a strange sort of suspense, time passing without touching her.
 
@@ -116,7 +116,7 @@ _“Morning, Honey. Want to go for a ride?”_ It was the same weak, raspy femin
 
 Mrs. E stood there, unmoving, as the weak glimmer of dawnlight increased, glowing on the beautiful, terrible transfiguration of her beloved Esmeralda. “What’s happening to me?,” she finally asked. “Am I dying?”
 
-_“No, dear. _I_ died. Your time is not yet, but maybe soon. I hope soon.”_
+_“No, dear._ I _died. Your time is not yet, but maybe soon. I hope soon.”_
 
 “Why?” cried Mrs. E. “Why do you want me to die?”
 
