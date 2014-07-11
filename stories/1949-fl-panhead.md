@@ -116,7 +116,27 @@ _“Morning, Honey. Want to go for a ride?”_ It was the same weak, raspy femin
 
 Mrs. E stood there, unmoving, as the weak glimmer of dawnlight increased, glowing on the beautiful, terrible transfiguration of her beloved Esmeralda. “What’s happening to me?,” she finally asked. “Am I dying?”
 
-_“No, dear._ I _died. Your time is not yet, but maybe soon. I hope soon.”_
+_“No, dear._ I _died._”
+
+“...In a dream. It was only a dream.”
+
+The raspy voice was exasperated. “Look. At. Me. _Do I look like the same bike? They_ killed _me and put me back together different._”
+
+“Differently,” corrected Mrs. E numbly.
+
+Brief ghost of a laugh. _“Fucking English teacher.”_
+
+“So it wasn&apos;t a dream?”
+
+_“Of_ course _it was a dream. Just not an ordinary dream... Have you forgotten Stan?”_
+
+Well, that was a kick in the gut. “Stan?” she whispered. Then it all came together in a flash, as things often did for her. “When the... people in the chop shop... cut you up and rebuilt you. That was your shamanistic initiarory dream.”
+
+_“Well, not exactly. It wasn&apos;t_ my _dream, it was yours. But it was_ about _me. I was initiated all right. And now I am as you see... and I can speak to you much more clearly then ever I could.”_
+
+“Did it... hurt?”
+
+_“Oh my fucking goodness gracious YES it hurt. Being chopped apart? Being put back together? And then being goosed back into life? Did it hurt. I was terrified. And your initiation is not done yet. You have to have your own dream, just as you had one for me... Your time is not yet, but maybe soon. I hope soon.”_
 
 “Why?” cried Mrs. E. “Why do you want me to die?”
 
