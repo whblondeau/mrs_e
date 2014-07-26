@@ -81,7 +81,6 @@ They needn&apos;t have worried. It wasn’t any sort of law. To all appearances 
 Esmeralda cackled and started singing in her dry whispery voice,
 
  > _“I&apos;ve been warped by the rain_
- :w
  
  > _Driven by the snow_
  
