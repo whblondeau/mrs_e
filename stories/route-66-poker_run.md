@@ -86,7 +86,7 @@ Esmeralda cackled and started singing in her dry whispery voice,
  
  > _I&apos;m drunk and dirty, don&apos;t you know…”_
 
-Knock it off, Esmeralda. “Not a problem. Need a drink?”
+_Knock it off, Esmeralda._ “Not a problem. Need a drink?”
 
 The Dealer shook her head. “Plenty in the truck, thanks.”
 
@@ -105,7 +105,7 @@ The cards up: Ten of Spades, Ten of Diamonds, Ten of Hearts. She turned the firs
 
 Ten of Clubs.
 
-“Well now,” said Mrs. E. “I think I’m going to buy you dinner.”
+“...Well now,” said Mrs. E. “I think I’m going to buy you dinner.”
 
 “Hope it’s close by.”
 
