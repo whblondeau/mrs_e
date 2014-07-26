@@ -4,12 +4,12 @@
 
 Dry country sounds different than most places where people go. Especially on hot days; and, well, this was New Mexico in summertime. There&apos;s a kind of sound in the air: the sound of small stirrings of wind, the sound of redbrown rock and dirt baking in the daytime sun. Not really a sound you can hear; more of a background noise floor, a small pressure on the ear, with a big hot silence looming over it, empty and still. Only the occasional tick or ping from the cooling motorcycles broke it, and the creak from Izzy&apos;s leathers as he shifted. Boy didn&apos;t know how to hold still, but she didn&apos;t blame him much. It was just damned hot.
 
-Not the hottest part of the state—that would be down near Alamogordo, Mrs. E reckoned—but the Tucumcari area is always hot enough in summertime. It can go weeks without rain in a bad year, and this was a bad year. The dryland plants were shrinking down and thinning out, hunkering patiently against the age-old cycle. As the plants dwindled, the bones of the mountain were showing through.
+Not the hottest part of the state—_that would be down near Alamogordo,_ Mrs. E reckoned—but the Tucumcari area is always hot enough in summertime. It can go weeks without rain in a bad year, and this was a bad year. The dryland plants were shrinking down and thinning out, hunkering patiently against the age-old cycle. As the plants dwindled, the bones of the mountain were showing through.
 Tucumcari Mountain isn’t really a mountain. It’s more of a two-mesa layer cake. They were up on the top of the lower mesa, north of of the upper mesa, and the air was a little cooler there; but they didn’t have any shade.
 
 Near the Big T had been the rendezvous description, and Tucumcari Mountain’s Big T wasn’t too far away. It looked like a scatter of weird white rocks, this close to, but from the distance it resolved into the hillside letter “T” that Tucumcari’s civic pride kept whitewashed. The local kids did it, apparently, had been doing that for years. It was a powerful ritual.
 
-Overhead the sky was a darker kind of blue than Mrs. E was accustomed to seeing. She spotted a couple of buzzards up there, pretty high up. Not looking for us, not yet, she thought with a smirk.
+Overhead the sky was a darker kind of blue than Mrs. E was accustomed to seeing. She spotted a couple of buzzards up there, pretty high up. _Not looking for us, not yet,_ she thought with a smirk.
 
 The silence was starting to get to her, so she dug out her pack of American Spirits, put one in her mouth, and sparked the Ronson. The startling rasp of the flint echoed out into the still heat like a mattock sinking through soil and hitting a rock. She drew in a grateful lungful, let it drift away in the surreptitiously moving air.
 
@@ -33,13 +33,13 @@ She gave him a flat look. “Your point here?”
 
 “Those things are going to kill you. Unless you crash and that do-rag somehow fails to protect your skull from impact.”
 
-Mrs. E laughed. In her head, Esmeralda laughed too, a creaking sort of whispery laugh. My motorcycle is weird, Mrs. E thought.
+Mrs. E laughed. In her head, Esmeralda laughed too, a creaking sort of whispery laugh. _My motorcycle is weird,_ Mrs. E thought.
 
-“You wouldn’t ride me if I wasn’t.”
+_“You wouldn’t ride me if I wasn’t.”_
 
-Weren’t.. Once an English teacher, always an English teacher.
+_Weren’t_. Once an English teacher, always an English teacher.
 
-“Izzy, you don’t get it. I might die soon, yes. Maybe on this trip; maybe you’ll have to deal with my dead body. But seriously, it’s my life… besides, I care more about keeping you from dying.” You earnest, pious fuckwit. 
+“Izzy, you don’t get it. I might die soon, yes. Maybe on this trip; maybe you’ll have to deal with my dead body. But seriously, it’s my life… besides, I care more about keeping you from dying.” _You earnest, pious fuckwit._ 
 
 “Well, if you die, you won’t exactly be able to even do that much, will you?” 
 
@@ -47,7 +47,7 @@ Weren’t.. Once an English teacher, always an English teacher.
 
 Izzy shook his head, scratching his nails through his brown curls where the sweat was itching. His full-coverage helmet wasn’t exactly comfortable in hot country. Mrs. E wore a do-rag for lots of reasons, not the least of which was a stubborn sense of personal style; but it sure felt better than any helmet she’d ever tried on. Especially in the heat. “Sometimes I think you think that she’s—it’s—a horse, not a motorcycle,” he said. “And then sometimes I think you just have an imaginary friend.”
 
-“If you only knew, kid,” said Esmeralda in her laryngitis-girl voice.
+_“If you only knew, kid,”_ said Esmeralda in her laryngitis-girl voice.
 
 Izzy looked at their bikes. The machines could hardly have been more different. He rode a Suzuki GSXR 600 crotch rocket that exasperated Mrs. E: a hunched high-tension monster, weird-ass science fiction special effects styling including an obnoxious burnt-orange tank and fairing; to her, the thing hardly looked like a motorcycle at all. 
 
@@ -61,7 +61,7 @@ Whey they’d finally stopped for a break, Izzy had refused to look at Mrs. E fo
 
 That was the beginning of Izzy’s rough education in the realities of the Poker Run community. He had shown distinct signs of strain, especially when they’d gotten their third card, a Jack of Clubs, in Meramec caverns. The dealer was something in the dark that was undeniably not human. Mrs. E had kept a close eye on Izzy for a while after that: she had known too many non-D&D-playing engineers to be confident of his mental resilience. But he’d gotten over it, or at least decided to live with it provisionally. She thought he might do all right after all. With careful minding.
 
-Now they were at the cryptically-designated Big T, waiting on a dealer - story of my life - with a middling hand: three Tens, Ace of Hearts, Six of Spades. This would be another discard deal, and they had to make it count. Three of a kind is pretty good in normal poker, but Route 66 Poker Run rules allowed as many discard-and-draw deals as the team could make within the time limit. They still had till sundown in two days; but it would be hard to get to many more dealers and still get to Santa Barbara by then. 
+Now they were at the cryptically-designated Big T, waiting on a dealer—_story of my life_—with a middling hand: three Tens, Ace of Hearts, Six of Spades. This would be another discard deal, and they had to make it count. Three of a kind is pretty good in normal poker, but Route 66 Poker Run rules allowed as many discard-and-draw deals as the team could make within the time limit. They still had till sundown in two days; but it would be hard to get to many more dealers and still get to Santa Barbara by then. 
 
 Then, too, she was tired, and Izzy was tired. Mrs. E thought that some of the other teams didn’t need much sleep.
 
@@ -80,11 +80,11 @@ They needn&apos;t have worried. It wasn’t any sort of law. To all appearances 
 
 Esmeralda cackled and started singing in her dry whispery voice,
 
-“I been warped by the rain
+_“I&apos;ve been warped by the rain
 
 Driven by the snow
 
-I&apos;m drunk and dirty, don&apos;t you know…”
+I&apos;m drunk and dirty, don&apos;t you know…”_
 
 Knock it off, Esmeralda. “Not a problem. Need a drink?”
 
