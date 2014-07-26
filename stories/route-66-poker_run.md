@@ -80,11 +80,11 @@ They needn&apos;t have worried. It wasn’t any sort of law. To all appearances 
 
 Esmeralda cackled and started singing in her dry whispery voice,
 
-_“I&apos;ve been warped by the rain
+_“I&apos;ve been warped by the rain_
 
-Driven by the snow
+_Driven by the snow_
 
-I&apos;m drunk and dirty, don&apos;t you know…”_
+_I&apos;m drunk and dirty, don&apos;t you know…”_
 
 Knock it off, Esmeralda. “Not a problem. Need a drink?”
 
