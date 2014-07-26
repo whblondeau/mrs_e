@@ -4,9 +4,9 @@ Mrs. E felt that she had come to understand death pretty well.
 
 Sometimes it went shockingly fast, like when her cousin Barry (one of the few people in her family she could stand) just died at 27 of a heart defect nobody had ever suspected. He was sitting at the bar in his house, having morning coffee; _probably dead before he hit the floor,_ that’s what they said. Leaving everyone who cared in shock, leaving them to work it out themselves. Mrs. E hadn’t been there for the funeral: it had been summer, and she hadn’t had any summer school sections, so she’d just ridden up to the Superior North Shore with more mescaline than was good for her. She wrote madly in a journal the whole time, and never showed it to anyone, and burned it after she came back, because it was for Barry and nobody fucking else.
 
-Sometimes death was slow and meticulous and hurt a lot, raking the dying person and the people who loved them over the coals, again and again, five stages of grieving, ten, fifteen. Stan Prater taught History. He wasn&apos;t just a coworker. The two of them could hang out for hours, listening to music nobody else seemed to give a damn about, smoking and drinking and having the kind of conversations that don’t come around too often in a lifetime. For Stan it was pancreatic cancer, and that’s anything but fast. 
+Then again... sometimes death was slow and meticulous and hurt a lot, raking the dying person and the people who loved them over the coals, again and again, five stages of grieving, ten, fifteen. Stan Prater taught History. He wasn&apos;t just a coworker: Stan had been the best of friends. The two of them could hang out for hours, listening to music nobody else seemed to give a damn about, smoking and drinking and having the kind of conversations that don’t come around too often in a lifetime. For Stan it was pancreatic cancer, and that’s anything but fast. 
 
-Mrs. E had participated in Stan’s death pretty intimately. His rather magnificent end of life game plan was to experience the ecstatic shamanistic dream of the Central Asian people he’d been fascinated with. The few people who knew what he was up to thought the whole project was ridiculous and weird—who wants to experience a vision of being torn apart by demons and reassembled into a spirit body that can walk in dreams? But Mrs. E got it, and she helped him as best she could. She drummed for him for hours on end, although she never thought she was any damn good at it. (She also obtained mescaline and peyote and _amanita muscaria_ for him, and she was quite a bit better at that side of things, thanks largely to Jeremy McFadden in her Honors section.)
+Mrs. E had participated in Stan’s death the whole way. His rather magnificent end of life game plan was to experience the ecstatic shamanistic dream of the Central Asian people he’d been fascinated with. The few who knew what he was up to thought the whole project was ridiculous and weird—who wants to experience a vision of being torn apart by demons and reassembled into a spirit body that can walk in dreams? But Mrs. E got it, and she helped him as best she could. She drummed for him for hours on end, although she never thought she was any damn good at it. (She also obtained mescaline and peyote and _amanita muscaria_ for him, and she was quite a bit better at that side of things, thanks largely to Jeremy McFadden in her Honors section.)
 
 And then one day Stan, visibly failing, was admitted to the hospital and that was that. No more drumming, no more dancing, no more trips. As far as she could tell, he never had the kind of dream he was looking for. Failure? Well, life itself is a failure, if you look at it that way… but Stan went out his own way, and she had helped him do that. That had to count for something. Had to count for a lot.
 
@@ -116,7 +116,27 @@ _“Morning, Honey. Want to go for a ride?”_ It was the same weak, raspy femin
 
 Mrs. E stood there, unmoving, as the weak glimmer of dawnlight increased, glowing on the beautiful, terrible transfiguration of her beloved Esmeralda. “What’s happening to me?,” she finally asked. “Am I dying?”
 
-_“No, dear._ I _died. Your time is not yet, but maybe soon. I hope soon.”_
+_“No, dear._ I _died._”
+
+“...In a dream. It was only a dream.”
+
+The raspy voice was exasperated. “Look. At. Me. _Do I look like the same bike? They_ killed _me and put me back together different._”
+
+“Differently,” corrected Mrs. E numbly.
+
+Brief ghost of a laugh. _“Fucking English teacher.”_
+
+“So it wasn&apos;t a dream?”
+
+_“Of_ course _it was a dream. Just not an ordinary dream... Have you forgotten Stan?”_
+
+Well, that was a kick in the gut. “Stan?” she whispered. Then it all came together in a flash, as things often did for her. “When the... people in the chop shop... cut you up and rebuilt you. That was your shamanistic initiarory dream.”
+
+_“Well, not exactly. It wasn&apos;t_ my _dream, it was yours. But it was_ about _me. I was initiated all right. And now I am as you see... and I can speak to you much more clearly then ever I could.”_
+
+“Did it... hurt?”
+
+_“Oh my fucking goodness gracious YES it hurt. Being chopped apart? Being put back together? And then being goosed back into life? Did it hurt. I was terrified. And your initiation is not done yet. You have to have your own dream, just as you had one for me... Your time is not yet, but maybe soon. I hope soon.”_
 
 “Why?” cried Mrs. E. “Why do you want me to die?”
 
