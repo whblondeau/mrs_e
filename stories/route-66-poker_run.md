@@ -39,7 +39,7 @@ _“You wouldn’t ride me if I wasn’t.”_
 
 _Weren’t_. Once an English teacher, always an English teacher.
 
-“Izzy, you don’t get it. I might die soon, yes. Maybe on this trip; maybe you’ll have to deal with my dead body. But seriously, it’s my life… besides, I care more about keeping you from dying.” _You earnest, pious fuckwit._ 
+“Izzy, you don’t get it. I might die soon, yes. Maybe on this trip; maybe you’ll have to deal with my dead body. But seriously, it’s my life… besides, I care more about keeping _you_ from dying.” _You earnest, pious fuckwit._ 
 
 “Well, if you die, you won’t exactly be able to even do that much, will you?” 
 
