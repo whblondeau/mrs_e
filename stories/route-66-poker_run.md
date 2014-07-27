@@ -7,7 +7,7 @@ Dry country sounds different than most places where people go. Especially on hot
 Not the hottest part of the state—_that would be down near Alamogordo,_ Mrs. E reckoned—but the Tucumcari area is always hot enough in summertime. It can go weeks without rain in a bad year, and this was a bad year. The dryland plants were shrinking down and thinning out, hunkering patiently against the age-old cycle. As the plants dwindled, the bones of the mountain were showing through.
 Tucumcari Mountain isn’t really a mountain. It’s more of a two-mesa layer cake. They were up on the top of the lower mesa, north of of the upper mesa, and the air was a little cooler there; but they didn’t have any shade.
 
-Near the Big T had been the rendezvous description, and Tucumcari Mountain’s Big T wasn’t too far away. It looked like a scatter of weird white rocks, this close to, but from the distance it resolved into the hillside letter “T” that Tucumcari’s civic pride kept whitewashed. The local kids did it, apparently, had been doing that for years. It was a powerful ritual.
+_Near the Big T_ had been the rendezvous description, and Tucumcari Mountain’s Big T wasn’t too far away. It looked like a scatter of weird white rocks, this close to, but from the distance it resolved into the hillside letter “T” that Tucumcari’s civic pride kept whitewashed. The local kids did it, apparently, had been doing that for years. It was a powerful ritual.
 
 Overhead the sky was a darker kind of blue than Mrs. E was accustomed to seeing. She spotted a couple of buzzards up there, pretty high up. _Not looking for us, not yet,_ she thought with a smirk.
 
