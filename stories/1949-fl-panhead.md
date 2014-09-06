@@ -68,7 +68,7 @@ The only woman in the crew, fading red hair and freckles, spoke up. “Yeah Jimm
 
 And so it went. To Mrs. E’s bafflement, they started sorting through dismembered Esmeralda’s dead parts, and now they were discarding and discussing and fetching different pieces. There was a clattering and a stomping. Roto and Jimmy swung the engine over to a heavy workbench. Fat Fuck rinsed the last of the gas out of the tank, pulled off all of the fittings, rinsed again, and took it to the bead-blasting booth. _There goes a classic paint job,_ Mrs. E mourned. Zed stood smoking, pondering the naked frame, walking around it, conferring with the others.
 
-Then Mrs. E understood. _They’re not parting it out. Fucking assholes are _customizing_ my bike._ It was a brief sick feeling, like realizing… like realizing a beloved relative had been harvested to build a Frankenstein’s monster. She started to shake, and hoped none of them would come up into the loft.
+Then Mrs. E understood. <i>They’re not parting it out. Fucking assholes are</i> customizing <i>my bike.</i> It was a brief sick feeling, like realizing… like realizing a beloved relative had been harvested to build a Frankenstein’s monster. She started to shake, and hoped none of them would come up into the loft.
 
 <br/>
 It was kind of weird, when the criminal mechanics started to work on the rebuild. The shouting and swearing and banter fell off, and they moved with focus. Even Fat Fuck got that look: the look that Amy Lucero, who taught Art, got when she was sculpting with no kids around.
@@ -81,7 +81,7 @@ Her still smoldering grief and rage aside, she found herself becoming fascinated
 
 Then at last the rework was done, and the crew had slowly stopped work and were standing around the new bike at a respectful distance, mostly smoking, not talking much. Admiration time. The music had gone silent, and there were only slight scuffs of boots and the snick of lighter, the hiss of a beer bottle being popped.
 
-It was black and low-slung and unadorned. Black paint, sometimes shiny and hard, sometimes matte (And how did they get it to dry so fast?); no chrome except for parts of the engine. Stripped to the frame but not chopped, a bobber, she remembered, they call it a bobber when they do that, going to be fast, fast as anything, fenders that were hardly more than a gesture. The saddle was smaller and trimmer, although there was a  pillion saddle mounted directly on the rear fender. As though I&apos;d want somebody riding bitch, at my age, she thought in numb confusion. Then, _Why did I even think that? Not my bike anymore. Not Esmeralda._
+It was black and low-slung and unadorned. Black paint, sometimes shiny and hard, sometimes matte (And how did they get it to dry so fast?); no chrome except for parts of the engine. Stripped to the frame but not chopped, _a bobber, she remembered, they call it a bobber when they do that,_ going to be fast, fast as anything, fenders that were hardly more than a gesture. The saddle was smaller and trimmer, although there was a  pillion saddle mounted directly on the rear fender. _As though I&apos;d want somebody riding bitch, at my age,_ she thought in numb confusion. Then, _Why did I even think that? Not my bike anymore. Not Esmeralda._
 
 Then Zed looked up into the shadowed loft, directly at her, and the lenses of his glasses were suddenly glowing discs of flat orange. The others turned too, and looked at Mrs. E. Their eyes glowed in the same way. She felt sudden terror. Oh fuck, what’s happening, is this a flashback? Am I going crazy?
 
@@ -91,7 +91,7 @@ And then, the voice came in her head, whispering, like a kid with laryngitis. A 
 
 Mrs. E’s heart was already racing with fear, but now it began to pound. She needed a smoke, where were her goddamn cigarettes?
 
-The mechanics with the glowing eyes were starting to smile, in a way that was not very nice, but not entirely hostile either. Roto and the fat biker dude saluted her with their beers. “You got a long road ahead,” said Jimmy, “So we-”
+The mechanics with the glowing eyes were starting to smile, in a way that was not very nice, but not entirely hostile either. Roto and the fat biker dude saluted her with their beers. “You got a long road ahead,” said Jimmy, “So we—”
 
 “Shut up, Jimmy,” said Zed.
 
