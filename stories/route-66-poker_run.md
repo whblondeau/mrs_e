@@ -191,7 +191,7 @@ Mrs. E nodded. “I always got along with the Diablos pretty well, and I wouldn�
 
 “Oh shit - _Hell’s_ Angels? That’s what you mean by ‘outlaw’?”
 
-“Yeah, Izzy, but the HA’s aren’t usually a problem, not for civilians anyway. They just don’t have much to prove. There are other clubs though, and some of them... Some of them, especially the associate clubs, have a lot to prove. Like Republican politicians or guys with tiny dicks who buy big trucks. Gotta be more extreme to get noticed.
+“Yeah, Izzy, but the HA’s aren’t usually a problem, not for civilians anyway. They just don’t have much to prove. There are other clubs though, and some of them… Some of them, especially the associate clubs, have a lot to prove. Like Republican politicians or guys with tiny dicks who buy big trucks. Gotta be more extreme to get noticed.
 
 “And sometimes people are just fucking evil, and there are clubs where lots of evil assholes coagulate.” She sighed. “But one thing I can tell you about just about every outlaw club on the planet?
 
@@ -221,7 +221,7 @@ _You have got to be fucking kidding me._ Black mounts, Black garb, shadowed face
 
 Nine Riders.
 
-Which wasn’t as silly as might have been the case if they were just ordinary geeks on bikes. They were not. Each of the Riders she focused her attention on had Potential. As much as Izzy, some of them. And perhaps the most frightening thing was that they were adapting themes right out of Tolkien: nothing from Peter Jackson’s stupid movies. That kind of discipline and thinking meant they were dangerous: channeling Potential depended on powerful, intelligent use of the deep imagination.
+Which wasn’t as silly as might have been the case if they were just ordinary geeks on bikes. They were not. Each of the Riders she focused her attention on had Potential. As much as Izzy, some of them. And perhaps the most frightening thing was that they were adapting themes right out of Tolkien—nothing from Peter Jackson’s stupid movies. That kind of discipline and thinking meant they were dangerous: channeling Potential depended on powerful, intelligent use of the deep imagination.
 
 _“Yeah, that’s what they are, all right,”_ said Esmeralda, sounding shaken. _“What… Are they trying to do the Poker Run?”_
 
