@@ -112,4 +112,158 @@ Ten of Clubs.
 “We’re going to Del’s. It&apos;s in town, another 66 landmark. And don’t even fucking tell me that you don&apos;t like Mexican food.” 
 
 
+#### Roadhouse
 
+Immense cirrus brooms swept the sunset west, burning, pierced with contrails, looking like God was a redhead and She had shoved chopsticks in Her hair, the messy way that certain redheads can get away with, and if you say anything they just unbutton a top button and look at you some more. The roadhouse up ahead under that ragged display of sky had to be the place: Sharon’s Bar and Grill.
+ 
+The clue had been “Don’t keep the Deal to yourself.” Mrs E snorted. Sometimes the Route 66 Poker Run community was overly cute.
+
+Anyway, they needed food and a rest, and it was getting time to gas up the bikes. The Deal in Flagstaff had lost them a lot of time, and hadn’t paid off all that well: they’d upgraded their kicker card from three of diamonds to six of hearts. Now they really should push on. Mrs. E hoped that the Dealer at Sharon’s would not be hard to find, and wouldn’t make them wait.
+
+They motored into the dirt and gravel parking lot and eased themselves off of the bikes. Esmeralda was quietly humming a little wandering song that Mrs. E couldn’t place.
+ 
+Sharon’s was a pretty typical Western place: a low frame pole building, not a lot of neon, lamplight shining out of the windows over the railed front walk in the darkening evening. A few pickups and 4-wheelers in the parking lot, a smattering of other vehicles. Not exactly a jumping night.
+
+They pushed through the doors. “Table?” asked Izzy.
+
+“Ordinarily. But tonight I want to sit where we can talk to those underutilized bartenders.”
+
+They hoisted their road-weary asses onto barstools. Izzy was carrying his helmet, which she thought was kind of dumb, but at least it helped identify them. Not very many of the customers scattered round the tables bothered to look at them much.
+
+The bartender, a lean kindly-faced woman with a fall of iron-gray hair, ambled down to their end of the bar. “Evenin’. Can I get you folks anything?”
+
+“Got anything from Pearl Street Brewery?” asked Izzy.
+
+The bartender smiled a bit. “They don’t deliver down here, as it happens.”
+
+“Uh, OK… what was that brewery in Flagstaff?”
+
+The bartender wasn’t busy, and she seemed to enjoy rambling conversations about breweries, so Mrs. E let it ride without trying to bust things up. Eventually Izzy settled on a nut brown ale that the bartender thought he’d like. “And you?”
+
+Mrs. E smiled a little. “Lone Star. And a big glass of water. We’ve been on the bikes all day. And menus.” The bartender dropped a small wink and moved off.
+
+“So,” Izzy said, “How many more Deals can we make before we need to get to the end?”
+
+Mrs. E had been thinking about it. “Maybe two more, if this one doesn’t slow us down as much as the last one did.”
+
+“Is it really that important? We’ve got four of a kind already.”
+
+“Which is pretty good, in a normal game of poker. But we’re playing against some tough customers who move fast. And the kicker card matters…”
+
+“…because everybody’s got their own deck.” He grinned. Nice grin. Kid wasn’t exactly handsome, but he could crinkle the corners of his eyes just as if he were. “I’m not as dumb as I come off.”
+
+Their drinks came. The bartender, taking the hint, had brought Izzy a water unasked. Mrs. E took a long swallow. The Lone Star was crackling cold and it felt wonderful going down her throat. “Ah hell, I needed that.”
+
+The bartender grinned. “So, what brings you through these parts?”
+
+“Honeymoon,” Mrs E deadpanned. Izzy choked on his beer, and the bartender smirked appreciatively. “No, it’s a little less likely than that.”
+
+“Poker Run, huh?”
+
+Mrs. E stared at the woman for just a moment, mind blank. “I’m Mrs. E. And this is Izzy.”
+
+“Isaiah.”
+
+“Maria.” She shook his extended hand.
+
+“You know about the Poker Runs, do you?” asked Mrs. E.
+
+“Sure. They’ve been through here time and again. Route 66.” She skipped a deliberate beat. “People with a lot of Potential.” She nodded at Izzy. “Like him. And sometimes the ones you can’t place. Like you.”
+Izzy was gaping. Mrs. E felt like doing the same thing, but she had her, well, poker face on.
+
+Potential was something she had known how to recognize for a long time. Thing was, Maria clearly had no trace of it. She could be a lifelong orienteer with a Vincent Black Shadow parked in front of her house, who worked the Times of London crossword every day, and the Poker Run Committee wouldn’t give her the time of day.
+
+She wouldn’t even be able to find the Committee to talk to them. Even Izzy had managed to do that himself, without help.
+
+So how had she—
+
+Suddenly there was a growing roll of thunder from outside. Not a storm of the air, but a storm of engines. Mrs. E knew it instantly. Big cruiser motorcycles were rumbling into Sharon’s parking lot, and stopping. She counted them off as they shut off.
+
+Esmeralda’s voice, thinned to a distant whisper, reached her mental hearing. Just barely. _“This isn’t good, Honey, not good at all…”_
+
+Izzy was blinking and frowning uneasily. “What are—”
+
+Mrs. E held up a finger, wait. Seven, eight—nine?… “Nine or ten bikes. And take it from me, these are not your basic Minnesota Shriners on Gold Wings.” She looked flatly at Maria. “Might be trouble. Do you get outlaws in here much?”
+
+Maria twisted her mouth sideways a bit. “Some. Never had much of a problem with ‘em. They’re not as bad as people say, long as you give ‘em some respect.”
+
+Mrs. E nodded. “I always got along with the Diablos pretty well, and I wouldn’t expect trouble with the Angels…”
+
+“Oh shit - Hell’s Angels? That’s what you mean by ‘outlaw’?”
+
+“Yeah, Izzy, but the HA’s aren’t usually a problem, not for civilians anyway. They just don’t have much to prove. There are other clubs though, and some of them... Some of them, especially the associate clubs, have a lot to prove. Like Republican politicians or guys with tiny dicks who buy big trucks. Gotta be more extreme to get noticed.
+
+“And sometimes people are just fucking evil, and there are clubs where lots of evil assholes coagulate.” She sighed. “But one thing I can tell you about just about every outlaw club on the planet?
+
+“They’re gonna seriously disrespect a Suzuki crotch rocket.”
+
+Izzy turned pale and sat for a moment, then stood up reluctantly. Mrs. E stood up too. “I needed a smoke anyway. Let’s go see what they’re up to. Hopefully having a smoke themselves.” She looked at Maria’s concerned, wary face. “We’ll be back in to order dinner.”
+
+<br/>
+The bikers outside were having a smoke, yes. But they were not normal outlaws. Nothing even close.
+
+The bikes were almost reasonable, but they weren’t at all the kind of thing a normal outlaw would ride. Intensely stylish machines, not Harleys or any model she really knew. Each one customized to a sort of restrained gothic look: heavy fantasies in black and chrome, huge square engines with radiators on the front. She’d never seen anything tricked out to look so convincingly vampiric; most goth bikes ended up looking like they were designed by eighth-grade stoners, but these were solid, brutal, organic bikes with lines that breathed speed. Like Ed Roth had risen from the grave and turned his hand to designing bikes for a Halloween rally.
+
+The riders, though, the riders were just fucking strange.
+
+First of all, they had helmets, which outlaws never use. Black, rakish helmets, with visors that jutted down shadowing their faces. Some of them had left the helmets with the big bikes; but they were all wearing black hoodies, and the ones who had taken their helmets off had flipped the hoods up over their heads, shadowing their faces almost like medieval monks. The effect was spooky and menacing, not monastic.
+“Religious orders are spooky and menacing too, dear.”
+
+Mrs. E looked for the club insignia. Every outlaw club wears a sleeveless vest over everything else, the “colors”, with conventional artwork and legends proudly sewn or embroidered on the back. These bikers had vests of black denim all right, but the insignia was unusually simplistic: a single stylized red eye, glaring. She looked back at the bikes and saw a similar device on the side of every gas tank.
+You have got to be fucking kidding me. Black mounts, Black garb, shadowed faces… and the Red Eye.
+
+Nine Riders.
+
+Which wasn’t as silly as might have been the case if they were just ordinary people. They were not. Each of the Riders she focused her attention on had Potential. As much as Izzy, some of them. And perhaps the most frightening thing was that they were adapting themes right out of Tolkien: nothing from Peter Jackson’s stupid movies. That kind of discipline and thinking meant they were dangerous: channeling Potential depended on powerful, intelligent use of the deep imagination.
+
+_“Yeah, that’s what they are, all right,”_ said Esmeralda, sounding shaken. _“What… Are they trying to do the Poker Run?”_
+
+“Tough customers who move fast, and cheat,” Mrs. E said grimly. “These are not Poker Run players,” she continued for both Izzy and Esmeralda’s benefit. “These Nazgûl, these Black Riders, are henchmen. Somebody sent them.”
+
+“Why are they here?” Izzy was speaking with quiet attention.
+
+“They might be here to take us out,” said Mrs. E. “Poker Run’s a dangerous business. People have killed to eliminate players with strong hands before, although it’s damned difficult to know who’s got what. Still, like any card game, there’s usually some way to cheat… But they don’t even have to kill us. Just damage the bikes. If they start making a move in that direction, I’m intervening.”
+
+“How can you do that?” asked Izzy reasonably. “There are nine of them; they’ve got Potential set up to fulfill one of the more frightening archetypes of modern literature.”
+
+“We’re armed,” she reminded him. Or did you…”
+
+“Yeah. My Glock is with the bike.”
+
+Mrs. E was silent for a moment. “Don’t ever do that again.”
+
+“I won’t.”
+
+“Well… I’ve got six bullets in my revolver. That’s a few short even if I shoot better than I’ve ever done in my life. And it’s hard to shoot well when Potential’s working against you. And I have to admit, I don’t want to kill anybody, even someone who might want to kill me.”
+
+“‘Might?’”
+
+“Yeah, ‘might’. Maybe they’re not here to kill us at all.”
+
+_“Fuck else would they be here for?”_ Esmeralda whispered, sounding miserable.
+
+“Maybe they want to kill the Dealer.”
+
+“It’s kind of discouraging when you say things like that,” said Izzy after a moment. “All right. I don’t know much about Potential except that I have a lot of it. Can I—”
+
+_“Nono don’t.”_
+
+“Esmeralda says No. I say Not only No, but Fuck No. It’s not just that they’d kill you. They could probably control your Potential and use it against us… Look, right now getting that Glock is the biggest thing we need to worry about. Esmeralda, can you tell if the Nazgûl are armed?”
+
+_“...Knives, but no guns or grenades or anything,”_ she said after a minute.
+
+“Esmeralda says no guns. Knives only. So here’s what we do. I will go and engage them, get their attention. You time it as best you can, walk—walk, you hear me? Don’t hustle, be cool—over to your bike, unlock the side panel, get your gun. Make sure it’s loaded and the safety is off. The safety is _off_, all right?”
+
+“I’m an engineer. I get that.”
+
+“You’re an engineer who left his fucking gun in the lockup on his bike. You don’t have a combat-type mind. Violence starts, you try to keep your shit together, be methodical, and don’t shoot anybody except the Nazgul. Don’t wait, just start. One at a time. Don’t shoot fast; take time to fucking aim. One. At. A. Time.” Mrs. E realized that she was terrified, which always made her repeat herself; but that was probably right for Izzy. Anyway, she seemed to be in control of herself. “Fucking Poker Runs, why do I even do this shit? More backstabbing than a Faculty Committee.”
+
+_Esmeralda, tell me if something starts to happen._
+
+“All right, Izzy. Showtime. And? If something happens to your bike, get Esmeralda the fuck out of here.”
+
+_“Not without you! I won’t start!”_
+
+_I need you to get the fuck out if something goes wrong. Do it for me, Esmeralda, if it’s got to be done, just please do it._
+
+Mrs. E fished an American Spirit out of her pocket, and walked over to where the Black Riders were smoking. Somebody, she figured, ought to have a light.
