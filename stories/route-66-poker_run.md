@@ -189,7 +189,7 @@ Maria twisted her mouth sideways a bit. “Some. Never had much of a problem wit
 
 Mrs. E nodded. “I always got along with the Diablos pretty well, and I wouldn’t expect trouble with the Angels…”
 
-“Oh shit - Hell’s Angels? That’s what you mean by ‘outlaw’?”
+“Oh shit - _Hell’s_ Angels? That’s what you mean by ‘outlaw’?”
 
 “Yeah, Izzy, but the HA’s aren’t usually a problem, not for civilians anyway. They just don’t have much to prove. There are other clubs though, and some of them... Some of them, especially the associate clubs, have a lot to prove. Like Republican politicians or guys with tiny dicks who buy big trucks. Gotta be more extreme to get noticed.
 
@@ -197,24 +197,31 @@ Mrs. E nodded. “I always got along with the Diablos pretty well, and I wouldn�
 
 “They’re gonna seriously disrespect a Suzuki crotch rocket.”
 
-Izzy turned pale and sat for a moment, then stood up reluctantly. Mrs. E stood up too. “I needed a smoke anyway. Let’s go see what they’re up to. Hopefully having a smoke themselves.” She looked at Maria’s concerned, wary face. “We’ll be back in to order dinner.”
+Izzy turned pale and sat for a moment, then stood up reluctantly. Mrs. E stood up too. “Besides, Esmeralda’s not happy. I needed a smoke anyway. Let’s go see what they’re up to. Hopefully having a smoke themselves.”
+
+“Who’s Esmeralda?” Maria wanted to know.
+
+“Tell you later. We’ll be back in to order dinner.”
+
 
 <br/>
 The bikers outside were having a smoke, yes. But they were not normal outlaws. Nothing even close.
 
-The bikes were almost reasonable, but they weren’t at all the kind of thing a normal outlaw would ride. Intensely stylish machines, not Harleys or any model she really knew. Each one customized to a sort of restrained gothic look: heavy fantasies in black and chrome, huge square engines with radiators on the front. She’d never seen anything tricked out to look so convincingly vampiric; most goth bikes ended up looking like they were designed by eighth-grade stoners, but these were solid, brutal, organic bikes with lines that breathed speed. Like Ed Roth had risen from the grave and turned his hand to designing bikes for a Halloween rally.
+The bikes were almost reasonable, but they weren’t at all the kind of thing an outlaw club would ride. Intensely stylish machines, not Harleys or any model she really knew. Each one customized to a sort of restrained gothic look: heavy fantasies in black and chrome, huge square engines with radiators on the front. She’d never seen anything tricked out to look so convincingly vampiric; most goth bikes ended up looking like they were designed by eighth-grade stoners, but these were solid, brutal, organic bikes with lines that breathed speed. Like Ed Roth had risen from the grave and turned his hand to designing bikes for a Halloween rally.
 
 The riders, though, the riders were just fucking strange.
 
 First of all, they had helmets, which outlaws never use. Black, rakish helmets, with visors that jutted down shadowing their faces. Some of them had left the helmets with the big bikes; but they were all wearing black hoodies, and the ones who had taken their helmets off had flipped the hoods up over their heads, shadowing their faces almost like medieval monks. The effect was spooky and menacing, not monastic.
-“Religious orders are spooky and menacing too, dear.”
+
+_“Religious orders are spooky and menacing too, dear.”_
 
 Mrs. E looked for the club insignia. Every outlaw club wears a sleeveless vest over everything else, the “colors”, with conventional artwork and legends proudly sewn or embroidered on the back. These bikers had vests of black denim all right, but the insignia was unusually simplistic: a single stylized red eye, glaring. She looked back at the bikes and saw a similar device on the side of every gas tank.
-You have got to be fucking kidding me. Black mounts, Black garb, shadowed faces… and the Red Eye.
+
+_You have got to be fucking kidding me._ Black mounts, Black garb, shadowed faces… and the Red Eye.
 
 Nine Riders.
 
-Which wasn’t as silly as might have been the case if they were just ordinary people. They were not. Each of the Riders she focused her attention on had Potential. As much as Izzy, some of them. And perhaps the most frightening thing was that they were adapting themes right out of Tolkien: nothing from Peter Jackson’s stupid movies. That kind of discipline and thinking meant they were dangerous: channeling Potential depended on powerful, intelligent use of the deep imagination.
+Which wasn’t as silly as might have been the case if they were just ordinary geeks on bikes. They were not. Each of the Riders she focused her attention on had Potential. As much as Izzy, some of them. And perhaps the most frightening thing was that they were adapting themes right out of Tolkien: nothing from Peter Jackson’s stupid movies. That kind of discipline and thinking meant they were dangerous: channeling Potential depended on powerful, intelligent use of the deep imagination.
 
 _“Yeah, that’s what they are, all right,”_ said Esmeralda, sounding shaken. _“What… Are they trying to do the Poker Run?”_
 
@@ -252,7 +259,7 @@ _“Nono don’t.”_
 
 _“...Knives, but no guns or grenades or anything,”_ she said after a minute.
 
-“Esmeralda says no guns. Knives only. So here’s what we do. I will go and engage them, get their attention. You time it as best you can, walk—walk, you hear me? Don’t hustle, be cool—over to your bike, unlock the side panel, get your gun. Make sure it’s loaded and the safety is off. The safety is _off_, all right?”
+“Esmeralda says no guns. Knives only. So here’s what we do. I will go and engage them, get their attention. You time it as best you can, walk—<i>walk</i>, you hear me? Don’t hustle, be cool—over to your bike, unlock the side panel, get your gun. Make sure it’s loaded and the safety is off. The safety is _off_, all right?”
 
 “I’m an engineer. I get that.”
 
