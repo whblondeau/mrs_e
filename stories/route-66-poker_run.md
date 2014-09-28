@@ -162,7 +162,7 @@ The bartender grinned. “So, what brings you through these parts?”
 
 Mrs. E stared at the woman for just a moment, mind blank. “I’m Mrs. E. And this is Izzy.”
 
-“Isaiah.”
+“Isaiah,” he corrected.
 
 “Maria.” She shook his extended hand.
 
