@@ -50,9 +50,9 @@ _“If you only knew, kid,”_ said Esmeralda in her laryngitis-girl voice.
 
 Izzy looked at their bikes. The machines could hardly have been more different. He rode a Suzuki GSXR 600 crotch rocket that exasperated Mrs. E: a hunched high-tension monster, weird-ass science fiction special effects styling including an obnoxious burnt-orange tank and fairing; to her, the thing hardly looked like a motorcycle at all. 
 
-Esmeralda, by contrast, was a bobbed 1949 Harley Panhead, painted black everywhere: low-slung, spare, rakish. Rebuilt to be violently fast for a Harley, there was still no way that she could have gone nearly as fast as Izzy’s bike. But she had style to spare.
+Esmeralda, by contrast, was a bobbed 1949 Harley Panhead, painted black everywhere: low-slung, spare, rakish. Rebuilt to be violently fast for a Harley, with style to spare, there was still no way that she could have gone nearly as fast as Izzy’s bike. But…
 
-Back in the beginning, when Izzy, chafing in dumb testosterone resentment over his junior role in the Poker Run, had unwound on the freeway in Illinois, he had been shocked to see Mrs. E keeping up with him without apparent effort. She had let him run for a while, then signaled a slowdown when Esmeralda had expressed a little concern over the Suzuki’s ability to run redlined for so long. He had obeyed the signal (probably also worried about what the high-speed run was doing to his bike), and they had had a long cooldown run. 
+Back in the beginning, when Izzy, chafing in dumb testosterone resentment over his junior role in the Poker Run, had unwound on the freeway in Illinois, he had been shocked to see Mrs. E keeping up with him without apparent effort. She had let him run for a while, then signaled a slowdown when Esmeralda had expressed a little concern over the Suzuki’s ability to run redlined for so long. He had obeyed the signal (probably also worried about what the high-speed run was doing to his bike), and they had had a long cooldown ride. 
 
 Whey they’d finally stopped for a break, Izzy had refused to look at Mrs. E for a long time. Then he’d only said, “I don’t know what you had done to that bike. That just shouldn't be physically possible.” 
 
@@ -102,7 +102,7 @@ The cards up: Ten of Spades, Ten of Diamonds, Ten of Hearts. She turned the firs
 
 Ten of Clubs.
 
-“...Well now,” said Mrs. E. “I think I’m going to buy you dinner.”
+“…Well now,” said Mrs. E. “I think I’m going to buy you dinner.”
 
 “Hope it’s close by.”
 
@@ -167,7 +167,7 @@ Mrs. E stared at the woman for just a moment, mind blank. “I’m Mrs. E. And t
 
 “Sure. They’ve been through here time and again. Route 66.” She skipped a deliberate beat. “People with a lot of Aptitude.” She nodded at Izzy. “Like him. And sometimes the ones you can’t place. Like you.” Izzy was gaping. Mrs. E felt like doing the same thing, but she had her, well, poker face on.
 
-Potential was something she had known how to recognize for a long time. Thing was, Maria clearly had no trace of it. She could be a lifelong orienteer with a Vincent Black Shadow parked in front of her house, who worked the Times of London crossword every day, and the Poker Run Committee wouldn’t give her the time of day.
+Aptitude was something she had known how to recognize for a long time. Thing was, Maria clearly had no trace of it. She could be a lifelong orienteer with a Vincent Black Shadow parked in front of her house, who worked the Times of London crossword every day, and the Poker Run Committee wouldn’t give her the time of day.
 
 She wouldn’t even be able to find the Committee to talk to them. Even Izzy had managed to do that himself, without help.
 
@@ -217,9 +217,9 @@ _You have got to be fucking kidding me._ Black mounts, Black garb, shadowed face
 
 Nine Riders.
 
-Which wasn’t as silly as might have been the case if they were just ordinary geeks on bikes. They were not. Each of the Riders she focused her attention on had Potential. As much as Izzy, some of them.  But bad. Bad stuff. Underlying heartbeats that she could hear, nine of them. Nine hearts pumping fear and horror instead of blood, nine hearts far gone in terrible loneliness and loss. She wanted to run away, to swing a leg over Esmeralda and go, abandoning everyone and everything. Not even with any hope of getting away—Esmeralda was insanely fast, but the Riders’ bikes looked like they could keep up—just _run_.
+Which wasn’t as silly as might have been the case if they were just ordinary geeks on bikes. They were not. Each of the Riders she focused her attention on had Aptitude. As much as Izzy, some of them. A few probably had more, of she was any judge.  But bad. Bad stuff. Underlying heartbeats that she could hear, nine of them. Nine hearts pumping fear and horror instead of blood, nine hearts far gone in terrible loneliness and loss. She wanted to run away, to swing a leg over Esmeralda and go, abandoning everyone and everything. Not even with any hope of getting away—Esmeralda was insanely fast, but the Riders’ bikes looked like they could keep up—just _run_.
 
-Perhaps the most frightening thing was that they were adapting themes right out of Tolkien—nothing from Peter Jackson’s stupid fucking movies.  That kind of discipline and thinking meant they were dangerous: channeling Aptitude depended on powerful, intelligent use of the deep imagination. Aptitude conditioned on cheap tropes didn’t have much of a bite...
+Perhaps the most frightening thing was that they were adapting themes right out of Tolkien—nothing from Peter Jackson’s stupid fucking movies.  That kind of discipline and thinking meant they were dangerous: channeling Aptitude depended on powerful, intelligent use of the deep imagination. Aptitude conditioned on cheap tropes didn’t have much of a bite…
 
 _“Yeah, that’s what they are, all right,”_ said Esmeralda, sounding shaken. _“What… Are they trying to do the Poker Run?”_
 
@@ -229,7 +229,7 @@ _“Yeah, that’s what they are, all right,”_ said Esmeralda, sounding shaken
 
 “They might be here to take us out,” said Mrs. E. “Poker Run’s a dangerous business. People have killed to eliminate players with strong hands before, although it’s damned difficult to know who’s got what. Still, like any card game, there’s usually some way to cheat… But they don’t even have to kill us. Just damage the bikes. If they start making a move in that direction, I’m intervening.”
 
-“How can you do that?” asked Izzy reasonably. “There are nine of them; they’ve got Potential set up to fulfill one of the more frightening archetypes of modern literature.”
+“How can you do that?” asked Izzy reasonably. “There are nine of them; they’ve got Aptitude set up to fulfill one of the more frightening archetypes of modern literature.”
 
 “We’re armed,” she reminded him. Or did you…”
 
@@ -239,7 +239,7 @@ Mrs. E was silent for a moment. “Don’t ever do that again.”
 
 “I won’t.”
 
-“Well… I’ve got six bullets in my revolver. That’s a few short even if I shoot better than I’ve ever done in my life. And it’s hard to shoot well when Potential’s working against you. And I have to admit, I don’t want to kill anybody, even someone who might want to kill me.”
+“Well… I’ve got six bullets in my revolver. That’s a few short even if I shoot better than I’ve ever done in my life. And it’s hard to shoot well when Aptitude’s working against you. And I have to admit, I don’t want to kill anybody, even someone who might want to kill me.”
 
 “‘Might?’”
 
@@ -249,13 +249,13 @@ _“Fuck else would they be here for?”_ Esmeralda whispered, sounding miserabl
 
 “Maybe they want to kill the Dealer.”
 
-“It’s kind of discouraging when you say things like that,” said Izzy after a moment. “All right. I don’t know much about Potential except that I have a lot of it. Can I—”
+“It’s kind of discouraging when you say things like that,” said Izzy after a moment. “All right. I don’t know much about Aptitude except that I have a lot of it. Can I—”
 
 _“Nono don’t.”_
 
-“Esmeralda says No. I say Not only No, But Fuck No. It’s not just that they’d kill you. They could probably control your Potential and use it against us… Look, right now getting that Glock is the biggest thing we need to worry about. Esmeralda, can you tell if the Nazgûl are armed?”
+“Esmeralda says No. I say ot only No, but Fuck No. It’s not just that they’d kill you. They could probably control your Aptitude and use it against us… Look, right now getting that Glock is the biggest thing we need to worry about. Esmeralda, can you tell if the Nazgûl are armed?”
 
-_“...Knives, but no guns or grenades or anything,”_ she said after a minute.
+_“…Knives, but no guns or grenades or anything,”_ she said after a minute.
 
 “Esmeralda says no guns. Knives only. So here’s what we do. I will go and engage them, get their attention. You time it as best you can, walk—<i>walk</i>, you hear me? Don’t hustle, be cool—over to your bike, unlock the side panel, get your gun. Make sure it’s loaded and the safety is off. The safety is _off_, all right?”
 
@@ -306,7 +306,7 @@ She nodded slightly. _He’s negotiating, not working his way up to immediate as
 
 “If I’d known you were chasing us, you wouldn’t have caught us at all.”
 
-“”Perhaps not,” he conceded. “But we have powers of pursuit and tracking that might surprise you.”
+“Perhaps not,” he conceded. “But we have powers of pursuit and tracking that might surprise you.”
 
 _Why’s he boasting? Maybe he’s not as confident as he wants to sound._
 
@@ -314,7 +314,7 @@ _“He’s very powerful,”_ warned Esmeralda in a faint secret breath, barely 
 
 Mrs. E took another drag, drawing the moment out. “Well, you’ve found me now. What do you want?”
 
-“A simple thing. Just give us your deck of cards, and your drawn hand. Only that; then we will leave you in... peace.” He said it like an inevitability, putting forth his power. Mrs. E felt dizzy and sick, and was amazed that she still stood and still presented an unconcerned face. She took another puff, even though she knew in her heart that the Riders would leave her for dead, and she would be buried right here in the parking lot, buried alive with gravel and sand filling her mouth and her unblinking eyes.
+“A simple thing. Just give us your deck of cards, and your drawn hand. Only that; then we will leave you in… peace.” He said it like an inevitability, putting forth his power. Mrs. E felt dizzy and sick, and was amazed that she still stood and still presented an unconcerned face. She took another puff, even though she knew in her heart that the Riders would leave her for dead, and she would be buried right here in the parking lot, buried alive with gravel and sand filling her mouth and her unblinking eyes.
 
 “Well,” said Mrs. E after a moment, in a rusty voice, beginning to waver in the face of the horror. “That’s  unprecedented. For the last few decades anyway.” The Route 66 Poker Run Committee had been dealing with cheat schemes ranging from the brutally powerful to the wickedly subtle for a long time. The protective enchantments were immensely strong, refined and tested over the years. She frowned. “I don’t see how I could give those up even if I agreed to. The enchantments bind me, too.”
 
@@ -423,7 +423,7 @@ There was a man waiting interestedly on the walk by the door, tall, gray hair an
 
 “I kept everyone inside,” he said calmly, in a gravelly voice. “They wanted to come out and mix it up, but, well. Civilians.”
 
-Zed nodded, preoccupied. Izzy suddenly had a feeling of vertigo. “Uh, you're a cop?” Hoping his voice remained casual. _Because I just shot a guy a while ago, without clear provocation, and you were probably watching out the window..._
+Zed nodded, preoccupied. Izzy suddenly had a feeling of vertigo. “Uh, you're a cop?” Hoping his voice remained casual. _Because I just shot a guy a while ago, without clear provocation, and you were probably watching out the window…_
 
 The man smiled with big yellowed teeth. “Well, not exactly that,” he said. “I'm a Dealer. Heard tell I was wanted here.”
 
@@ -437,7 +437,7 @@ For one thing, it was a pool table. The Exclusives had thrown a sheet onto it an
 
 Mrs. E was sort of awake, sort of aware, but confused. Her heart was hurting like hell. _Oh, don’t tell me,_ she thought bitterly, _Don’t tell me that after a lifetime of telling doctors to fuck off, I actually did have a heart attack._
 
-She tried to remember, but it wasn’t going well. What had happened? She had been going out to ask a light from the Black Riders, so Izzy could get his gun...
+She tried to remember, but it wasn’t going well. What had happened? She had been going out to ask a light from the Black Riders, so Izzy could get his gun…
 
 She could hear the Exclusives arguing.
 
@@ -453,7 +453,7 @@ _“Ain't gonna take none of your foolin' around,”_ roared the jukebox.
 
 She had never thought that anything could be so horribly painful, so shocking. Darkness irised in along the edges of her vision, and she felt her body shaking, as if from a long way off. The pain was bad, but the confusion was worse. She lost any sense of who she was or where she was.
 
-_“Because you're mine”_...
+_“Because you're mine”_…
 
 Fogerty vaulted into his incredible solo.
 
@@ -495,7 +495,7 @@ The guitar screamed up into the ravening climax as Mrs. E died.
 
 She knew she was dead. It was certain knowledge, not to be denied. Besides, to her unendurable relief, the pain faded away. <i>What the fuck. What the </i>fuck<i>. I can still see and hear.</i>
 
-_“Yes, Honey, you’re still here. You’re dead, but you’re here. That’s how it works...”_ Esmeralda whispered through her sobs.
+_“Yes, Honey, you’re still here. You’re dead, but you’re here. That’s how it works…”_ Esmeralda whispered through her sobs.
 
 The music swelled over the shocked bar.
 
@@ -531,7 +531,7 @@ The Exclusive people were really grooving with the music and their strange rhyth
 
 _“Thirty boxes made of bones,”_ Fogerty sang. _Yeah, thanks…_
 
-But they had plenty of reason to feel proud. Mrs. E drifted closer, somehow, and gazed at her skeleton for a long time. Brilliant, really. _Were these beautiful bones inside me all along?_ she wondered. _Or did these people—these whatever the fuck they are, these demons or spirits or constructs of ice and burning coals, these Exclusives—make my skeleton just... better?_
+But they had plenty of reason to feel proud. Mrs. E drifted closer, somehow, and gazed at her skeleton for a long time. Brilliant, really. _Were these beautiful bones inside me all along?_ she wondered. _Or did these people—these whatever the fuck they are, these demons or spirits or constructs of ice and burning coals, these Exclusives—make my skeleton just… better?_
 
 _“It’s, uh, complicated,”_ said Esmeralda.
 
@@ -581,7 +581,7 @@ _Bitch._
 
 Lon shrugged. “Yeah mos’ly. Wa’ me to?”
 
-Roto cursed, a weird echoing imprecation that seemed to roll away into far echoing distances. “...If Zed was still here, I’d give up one of mine. We can’t leave her with just one.”
+Roto cursed, a weird echoing imprecation that seemed to roll away into far echoing distances. “…If Zed was still here, I’d give up one of mine. We can’t leave her with just one.”
 
 “Ain’t like you got big tits in the first place.”
 
@@ -599,7 +599,7 @@ _“Got to hand it to those Black Riders,” Esmeralda agreed, sounding fascinat
 
 After a while Lon gently laid the Morgul-knife down on the table, careful not to touch anything else with it. He blew out a long breath, looking desperately weary. “Awright. Lung’s good to go.” He cracked a gap-toothed grin. “Patient’s cancer-free.”
 
-With a subdued cheer, the Exclusives got back to work. Mrs. E saw Roto give Lon a nod. That kind of mechanic-to-mechanic nod. Then she put her hand on Fat Fuck's shoulder for a moment. “Good thinking. You did all right. Zed... Zed would've been proud.”
+With a subdued cheer, the Exclusives got back to work. Mrs. E saw Roto give Lon a nod. That kind of mechanic-to-mechanic nod. Then she put her hand on Fat Fuck's shoulder for a moment. “Good thinking. You did all right. Zed… Zed would've been proud.”
 
 Mrs. E could hear the ghost of Roto's thought and intention. The woman would have said that Zed would probably have patched Fat Fuck to full membership, but had held herself back at the last moment. She couldn't make any promises, and she couldn't raise false hopes. Mrs. E thought that Roto was going to make a damned fine President.
 
@@ -616,7 +616,7 @@ As they worked, and Mrs. E watched every piece of herself being put back togethe
 
 First, that this was Joplin’s cover of "Ball and Chain", the 67 Monterey performance.
 
-Second, that the train of pain was smashing into her. She had no skin. No eyes. And her disembodied consciousness was sinking into that body… and it kept hurting more...
+Second, that the train of pain was smashing into her. She had no skin. No eyes. And her disembodied consciousness was sinking into that body… and it kept hurting more…
 
 _“Honey, you have to hold onto yourself! You have to be you… or you’ll come apart and be gone forever.”_
 
@@ -630,13 +630,13 @@ She was never sure, afterwards, if she could have done it without Esmeralda prom
 
 They were the memories that had lasted, the ones that made Mrs. E who she was. Smoking her first cigarette while reading _The Hobbit_, in fifth grade. The dirty ecstatic thrill of licking fellow bookworm Monica Hendricks's pussy at twelve. Reading Ginsberg’s _Howl_ at twenty. Hearing Robert Nighthawk playing slide guitar on Maxwell Street. She'd never gotten over that sound. Hell, she'd never gotten over Monica. Nor Ginsberg. Nor Tolkien. Nor pipe-weed of any description.
 
-The shores of Lake Michigan in her high school years, leading inevitably to working her ass off on a Mississippi River tug, down to the Gulf, then the open sea, crewing on a yacht to the Caribbean and the Mediterranean. The Greek Isles...
+The shores of Lake Michigan in her high school years, leading inevitably to working her ass off on a Mississippi River tug, down to the Gulf, then the open sea, crewing on a yacht to the Caribbean and the Mediterranean. The Greek Isles…
 
 Esmeralda gave a shocked gasp. <i>“You did </i>not<i> fuck Leonard Cohen!”</i>
 
 <i>I was </i>young<i>, and </i>cute<i>. And the things he said. The man could talk. Every word mattered. I remember conversation more than actual lovemaking.</i>
 
-_“I think you’re just... an unreliable narrator.”_
+_“I think you’re just… an unreliable narrator.”_
 
 <i>You’re a </i>Harley<i>. You shouldn’t be so goddamn prim.</i>
 
@@ -644,13 +644,13 @@ Back into the memories, if only to escape the agony. In and out of San Francisco
 
 _“Mmmm, Nortonnn.”_
 
-...Vignettes, people, magnificent mountainscapes and deserts, remote communes, music… music. Musicians. Townes Van Zandt. Rosie Flores. Coffee with Butch Hancock, desperately trying to remember every word, defeated in part by the weed… Learning crafts, maintaining a motorcycle without much help. Book after book going off like depth charges in her mind. Long stoned conversations about ethics and politics and the underlying realities of history. Sex. Drugs. Drink. Driving much too fast. Rough schooling in what the spy community calls “tradecraft”, just to stay out of trouble—because trouble could always find a bisexual hippie chick with a big motorcycle in the West. Learning to meet threats with words and wit and sincerity—and when those failed, any weapon that came to hand. Never a particularly violent person, but learning to keep her head on straight in a fight even when she was high or tripping, because she couldn’t be free otherwise. Like the man said: _To live outside the law you must be honest._
+…Vignettes, people, magnificent mountainscapes and deserts, remote communes, music… music. Musicians. Townes Van Zandt. Rosie Flores. Coffee with Butch Hancock, desperately trying to remember every word, defeated in part by the weed… Learning crafts, maintaining a motorcycle without much help. Book after book going off like depth charges in her mind. Long stoned conversations about ethics and politics and the underlying realities of history. Sex. Drugs. Drink. Driving much too fast. Rough schooling in what the spy community calls “tradecraft”, just to stay out of trouble—because trouble could always find a bisexual hippie chick with a big motorcycle in the West. Learning to meet threats with words and wit and sincerity—and when those failed, any weapon that came to hand. Never a particularly violent person, but learning to keep her head on straight in a fight even when she was high or tripping, because she couldn’t be free otherwise. Like the man said: _To live outside the law you must be honest._
 
 Marriage to a good guy, breaking up one long sad night on the pier at Algoma. Hearing of his death years later, leaving, ending up in Amsterdam for a long time.
 
 Back to the States eventually, getting a job teaching English, fighting with School Boards and other teachers. Students like meteors streaking across the night sky. Poetry slams.
 
-Finding a 1949 FL Panhead in need of some factory original love...
+Finding a 1949 FL Panhead in need of some factory original love…
 
 #
 
@@ -674,7 +674,7 @@ Deeper than before: the haft was partly buried in her chest. She felt the cold s
 
 “Careful,” Roto said quickly. “It came too close to killing you. We had to make it part of you.”
 
-“...So now if I bump my chest on something, or roll over in my sleep, the knife punches in the rest of the way and that’s how I die?”
+“…So now if I bump my chest on something, or roll over in my sleep, the knife punches in the rest of the way and that’s how I die?”
 
 “No”, said Jimmy. “We rebuilt you with a sheath in your heart. It’ll hold the knife all right.”
 
@@ -712,7 +712,7 @@ The waitress nodded. “Everyone’s gone. I’ll have to cook it.”
 
 “I’ll help,” said Izzy.
 
-“”I’ll help too,” said the Exclusive biker called Spydog. Maria flinched a little. “Really,” said Spydog. “I used to be a grill man.” He looked at the other Exclusives. “Rest of you want some food?”
+“I’ll help too,” said the Exclusive biker called Spydog. Maria flinched a little. “Really,” said Spydog. “I used to be a grill man.” He looked at the other Exclusives. “Rest of you want some food?”
 
 “Why did everybody leave?” asked Mrs. E. “And why haven’t the cops come?”
 
@@ -738,7 +738,7 @@ The Exclusives stood together, and shadows seemed to gather around them. “Abou
 
 The bar had gone dead still. The Dealer looked fascinated. Izzy just looked blank. Maria was pale and tight.
 
-“What? You mean, I’ve got to get a motorcycle and ride with you? Because that’s… I can’t afford...”
+“What? You mean, I’ve got to get a motorcycle and ride with you? Because that’s… I can’t afford…”
 
 “That’s how it is. Except for a couple of details. You don’t need to buy a bike: you inherit Zed’s. It's a good one.” She sighed, raked her fingers through her hair. “And you inherit his colors.” She pointed to the crumpled heap of clothing left behind when Zed’s body had vanished. “You’ll notice that those colors are patched ‘President’. That makes you my new boss.”
 
@@ -784,7 +784,7 @@ Izzy was smooth. He stepped over to the pile of clothes, grabbed Zed’s patched
 
 “Putting them on was quitting. The penalty for quitting without a surviving teammate—”
 
-“Yeah, I know.” Roto looked at the Dealer with a hard edge of worry. “We don’t have any interest in getting into it with you. Especially with a brand new President. Kind of a handicap.” She shook her head. “Maria’s the better shooter,” she said regretfully. “...No offense, Izzy.”
+“Yeah, I know.” Roto looked at the Dealer with a hard edge of worry. “We don’t have any interest in getting into it with you. Especially with a brand new President. Kind of a handicap.” She shook her head. “Maria’s the better shooter,” she said regretfully. “…No offense, Izzy.”
 
 The Dealer smiled, an evil smile with a lot of teeth. “I’m obligated to enforce the rules.” He started gathering Aptitude around himself: a shimmering around his hands, and a sound like rattlesnakes sliding across a dusty wooden floor in a deserted building. Another sound, unmistakable: shuffling and riffling a deck of cards, over and over. A faint bad smell like dead skulls in the desert sun.
 
@@ -861,7 +861,7 @@ The bartender shook her head, nodded, shrugged. Her dark gray hair stirred in th
 
 Mrs. E nodded. “I can do that. But I’ve got to go now. New body, new places I can go.”
 
-“You know what _is_ crazy? I wish... There's a part of me that... well, I would have liked to join the Exclusives. I just couldn't.”
+“You know what _is_ crazy? I wish… There's a part of me that… well, I would have liked to join the Exclusives. I just couldn't.”
 
 Mrs. E smiled. “Shotgun Maria. Of course there is, and of course you couldn't.” She lit a cigarette, and one for Maria. “You watch yourself though. This shit gives you cancer.”
 
@@ -878,5 +878,5 @@ Esmeralda chuckled, the happy sound of a girl without a care in the world, and a
 <i>“I wanna be a cowboy’s sweetheart<br/>
 I wanna learn to rope and ride<br/>
 I wanna ride through the plains and the desert<br/>
-Out west of the Great Divide...”</i>
+Out west of the Great Divide…”</i>
 
