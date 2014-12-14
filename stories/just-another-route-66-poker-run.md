@@ -203,7 +203,7 @@ Izzy turned pale and sat for a moment, then stood up reluctantly. Mrs. E stood u
 <br/>
 The bikers outside were having a smoke, yes. But they were not normal outlaws. Nothing even close.
 
-The bikes were almost reasonable, but they weren’t at all the kind of thing an outlaw club would ride. Intensely stylish machines, not Harleys or any model she really knew. Each one customized to a sort of restrained gothic look: heavy fantasies in black and chrome, huge square engines with radiators on the front. She’d never seen anything tricked out to look so convincingly vampiric; most goth bikes ended up looking like they were designed by eighth-grade stoners, but these were solid, brutal, organic bikes with lines that breathed speed. Like Ed Roth had risen from the grave and turned his hand to designing bikes for a Halloween rally.
+The bikes were almost reasonable, but they weren’t at all the kind of thing an outlaw club would ride. Intensely stylish machines, not Harleys or any model she really knew. Each one customized to a sort of restrained gothic look: heavy fantasies in black and chrome, huge square engines with radiators on the front. She’d never seen anything tricked out to look so convincingly vampiric; most goth bikes ended up looking like they were designed by eighth-grade stoners, but these were solid, brutal, organic bikes with lines that breathed speed. Like Big Daddy Roth had risen from the grave and turned his hand to designing bikes for a Halloween rally.
 
 The riders, though, the riders were… just fucking strange.
 
@@ -217,11 +217,11 @@ _You have got to be fucking kidding me._ Black mounts, Black garb, shadowed face
 
 Nine Riders.
 
-Which wasn’t as silly as might have been the case if they were just ordinary geeks on bikes. They were not. Each of the Riders she focused her attention on had Aptitude. As much as Izzy, some of them. A few probably had more, of she was any judge.  But bad. Bad stuff. Underlying heartbeats that she could hear, nine of them. Nine hearts pumping fear and horror instead of blood, nine hearts far gone in terrible loneliness and loss. She wanted to run away, to swing a leg over Esmeralda and go, abandoning everyone and everything. Not even with any hope of getting away—Esmeralda was insanely fast, but the Riders’ bikes looked like they could keep up—just _run_.
+Which wasn’t as silly as might have been the case if they were just ordinary geeks on bikes. They were not. Each of the Riders she focused her attention on had Aptitude. As much as Izzy, some of them. A few probably had more, if she was any judge.  But bad. Bad stuff. Underlying heartbeats that she could hear, nine of them. Nine hearts pumping fear and horror instead of blood, nine hearts far gone in terrible loneliness and loss. She wanted to run away, to swing a leg over Esmeralda and go, abandoning everyone and everything. Not even with any hope of getting away—Esmeralda was insanely fast, but the Riders’ bikes looked like they could keep up—just _run_.
 
 Perhaps the most frightening thing was that they were adapting themes right out of Tolkien—nothing from Peter Jackson’s stupid fucking movies.  That kind of discipline and thinking meant they were dangerous: channeling Aptitude depended on powerful, intelligent use of the deep imagination. Aptitude conditioned on cheap tropes didn’t have much of a bite…
 
-_“Yeah, that’s what they are, all right,”_ said Esmeralda, sounding shaken. _“What… Are they trying to do the Poker Run?”_
+_“Yeah, that’s what they are, all right,”_ whispered Esmeralda, sounding shaken. _“What… Are they trying to do the Poker Run themselves?”_
 
 “Tough customers who move fast, and cheat,” Mrs. E said grimly, almost managing to speak normally over a hollow lack of breath. “These are not Poker Run players,” she continued for both Izzy and Esmeralda’s benefit. “These Nazgûl, these Black Riders, are henchmen. Somebody sent them.”
 
@@ -253,7 +253,7 @@ _“Fuck else would they be here for?”_ Esmeralda whispered, sounding miserabl
 
 _“Nono don’t.”_
 
-“Esmeralda says No. I say ot only No, but Fuck No. It’s not just that they’d kill you. They could probably control your Aptitude and use it against us… Look, right now getting that Glock is the biggest thing we need to worry about. Esmeralda, can you tell if the Nazgûl are armed?”
+“Esmeralda says No. I say not only No, but Fuck No. It’s not just that they’d kill you. They could probably control your Aptitude and use it against us… Look, right now getting that Glock is the biggest thing we need to worry about. Esmeralda, can you tell if the Nazgûl are armed?”
 
 _“…Knives, but no guns or grenades or anything,”_ she said after a minute.
 
@@ -318,7 +318,7 @@ Mrs. E took another drag, drawing the moment out. “Well, you’ve found me now
 
 “Well,” said Mrs. E after a moment, in a rusty voice, beginning to waver in the face of the horror. “That’s  unprecedented. For the last few decades anyway.” The Route 66 Poker Run Committee had been dealing with cheat schemes ranging from the brutally powerful to the wickedly subtle for a long time. The protective enchantments were immensely strong, refined and tested over the years. She frowned. “I don’t see how I could give those up even if I agreed to. The enchantments bind me, too.”
 
-“We did think of that,” the Witchking agreed, his harsh voice dropping lower with sudden menace.
+“We did think of that,” the Witchking agreed, his harsh voice dropping lower with sudden menace. "We had hoped you would be able to think of something. A pity."
 
 Mrs. E knew she didn’t have much time. With a surge of strength she forced the gathering spell of doom and defeat away. “Who SENT you? Who was it?” she shouted with a sudden whipcrack in her voice. The Black Riders hunched with tense menace, like alarmed spiders; the Witchking himself seemed startled for a moment.
 
@@ -349,7 +349,7 @@ Izzy flew and skidded and rolled and fetched up against his own bike, rocking it
 
 Izzy was suddenly stricken with terror the like of which he had never known. He could scarcely breathe, his heart was thudding, and his mind was blotted out with black thoughts of death. Unreasoning, horrified, he tried to crouch away, and through sheer luck his cringing movement took him just out of the path of the blade’s thrust.
 
-A motorcycle tank is made of sturdy sheet metal, but it’s no match for the bodily strength of a Black Rider and the hardened steel of the blades they use. The keen point punched into the tank and the tip stabbed a little bit out through the other side. Izzy kept scrambling back. The dead howling fear still dominated his mind, and a thundering roar seemed to fill his ears. The Black Rider held the hilt and yanked, but the sword remained trapped, wedged between the sheared edges of metal. He placed a boot on the tank, grasped the hilt with both hands, and gave an angry heave. With a tortured shrill squeal, the blade tore out of the tank. Suddenly overbalanced, the Rider fell on his ass, hissing in anger. The bike tipped and fell on his right boot with a crash—
+A motorcycle tank is made of sturdy sheet metal, but it’s no match for the bodily strength of a Black Rider and the hardened steel of the blades they use. The keen point punched into the tank and the tip stabbed a little bit out through the other side. Izzy kept scrambling back. There was a sudden smell of gasoline. The dead howling fear still dominated his mind, and a thundering roar seemed to fill his ears. The Black Rider held the hilt and yanked, but the sword remained trapped, wedged between the sheared edges of metal. He placed a boot on the tank, grasped the hilt with both hands, and gave an angry heave. With a tortured shrill squeal, the blade tore out of the tank. Suddenly overbalanced, the Rider fell on his ass, hissing in anger. The bike tipped and fell on his right boot with a crash—
 
 And the _snap_ of broken bone.
 
@@ -399,7 +399,7 @@ Zed was looking over at Esmeralda, and at Izzy’s motorcycle still pinning the 
 
 “Zed, I was just fuckin with him. He’s all kinda soaked in gas now.” The fat man was one of those whiny people.
 
-Zed shook his head. “Stupid motherfucker thinks he’s gonna get patched some day, but he’s always gotta expostulate,” he said conversationally to the Black Rider leader. “You know what that’s like, right.”
+Zed shook his head. “Stupid motherfucker thinks he’s gonna get patched some day, but he’s always gotta _expostulate_,” he said conversationally to the Black Rider leader. “You know what that’s like, right.”
 
 The Witchking started to shake his head, shrugged, gave a grudging nod.
 
@@ -435,7 +435,7 @@ Mrs. E died on the table, but it wasn’t what it sounds like.
 
 For one thing, it was a pool table. The Exclusives had thrown a sheet onto it and set up a sort of desperate operating theater. The problem was, she was dying already. The Morgul knife had gone in deep, and cut her heart muscle. There was blood everywhere.
 
-Mrs. E was sort of awake, sort of aware, but confused. Her heart was hurting like hell. _Oh, don’t tell me,_ she thought bitterly, _Don’t tell me that after a lifetime of telling doctors to fuck off, I actually did have a heart attack._
+Mrs. E was sort of awake, sort of aware, but confused. Her heart was hurting like hell. _Oh, don’t tell me,_ she thought bitterly, _Don’t tell me that after a lifetime of telling doctors to fuck off, I actually_ did _have a heart attack._
 
 She tried to remember, but it wasn’t going well. What had happened? She had been going out to ask a light from the Black Riders, so Izzy could get his gun…
 
@@ -485,7 +485,7 @@ Jockamo the biker dude couldn't have moved so fast, but he did: there he was, su
 
 But Zed wasn’t going to do any more cutting. He was crumpling, transforming into something, starting with the places where the rock salt had hit him. Something like ice. Something like burning embers. But there was no steam, no smoke, no hiss: Zed shriveled and diminished, weirdly like the Wicked Witch of the West, screaming, spilling, burning, the wild light of flame refracted through the glassy ice as his substance consumed itself. Everyone stared in horror.
 
-_‘Vanishing like ice and embers on the floor’. Zelazny got it right,_ she mused in momentary curiosity. Then bitter fury welled up. <i>So they get upset by </i>this</i>, but I’m the one who—</i>
+_‘Vanishing like ice and embers on the floor’. Zelazny got it right,_ she mused in momentary curiosity. Then bitter fury welled up. <i>So they get upset by </i>this<i>, but I’m the one who—</i>
 
 _“That’s my girl. Bitch about it, snarl about it, don’t let go. Rage, rage against—”_
 
@@ -509,7 +509,7 @@ _Damn. It’s been a long time since I thought I was looking good._ She had no h
 
 _“It gets better,”_ whispered Esmeralda, frightened but trying to be encouraging. _“You’re gonna be all right. I think.”_
 
-#
+<br/>
 
 Izzy was shaking and gasping, forgotten, over by the bar. The horror of Zed and Roto’s dismemberment of Mrs. E had left him almost incapable of motion. He realized that he was holding the Glock, and that he wasn’t about to use it on anybody. Mrs. E was dead, the crazy Black Riders had been run off, and that Jockamo dude from Exclusive hadn’t even bothered to take his gun away, like he’d taken the shotgun from Maria.
 
@@ -523,7 +523,7 @@ Izzy tried hard to remember all of the first aid he’d ever been taught or read
 
 No major bleeding. Breathing OK. Check for broken spine or neck next.
 
-#
+<br />
 
 Jimmy had stoked the floor-shaking jukebox with more Creedence Clearwater. It was another ominous one, ambiguous, a slow descending shuffle. "Graveyard Train", that was it, “On the highwayyyyy…” Fogerty growled. Mrs. E laughed silently. _Good jukebox._
 
@@ -541,9 +541,9 @@ Suddenly Mrs. E got it, and was hit with a wave of grief. No eyes to cry with. _
 
 _“It was… pretty bad.”_ Esmeralda sounded worried.
 
-Mrs. E looked right at her own completely fleshless skull. It didn’t seem creepy or spooky. It seemed noble, the seat of awareness and reason. The empty eyesockets—_what had they done with the eyes and brain?_ she wondered absently—were deep and dark. When she looked into them, she saw a faint glimmer of light, like foxfire, or like a distant lantern seen through fog. Curious, she looked more closely; and suddenly, with a rush of vertigo, she realized that what she was being pulled, was slipping into her own dead eyes, into those whirlpools of darkness funneling down and away so far.
+Mrs. E looked right at her own completely fleshless skull. It didn’t seem creepy or spooky. It seemed noble, the seat of awareness and reason. The empty eyesockets—_what had they done with the eyes and brain?_ she wondered absently—were deep and dark. Looking into them was like looking into a vast echoing space. And in that space... she saw a faint distant glimmer of light, like foxfire, or like a dim lantern seen through fog a long way off. Curious, she looked more closely; and suddenly, with a rush of vertigo, she realized that what she was being pulled, was slipping into her own dead eyes, into those whirlpools of darkness funneling down and away. She was going into her own skull.
 
-She passed into her skull through the left socket. Inside it was a vast dark space streaked with lights. She realized that it was like being in an airplane, flying over distant scattered towns at night.
+She passed in through the left socket. Inside it was a vast dark space streaked with lights. She realized that it was like being in an airplane, flying over distant scattered towns at night.
 
 It was a great strange landscape she flew above, dark bones of earth piled in ridges and peaks, sawtooth sierras and vast plateaus breaking out into fingered mesas, bone-pale stretches of desert, dark immense forests, scattered luminous cities. And above it, hanging like an unimaginable vaulted cathedral, distant starscapes. Nebulae and galaxies, swarms and streams of stars, old ones, young ones… Ancient starlight, light born of iron, seeped down from the tremendous glimmering depths, to silver the landscape’s edges, glitter in threads and tarnished stretches of water.
 
@@ -595,7 +595,7 @@ She nodded too then, picked up the thin knife with a nauseated flinch, handed it
 
 Mrs. E then realized what was happening. The knife was not just removing the tumors—it was _destroying_ them. Its death-curse was still active. The keenness of her perception showed her, in a kind of symbolic vision, how the curse reached out with slow hideous deliberation, crawling along the webs and fibers of invasive tissue, and expanding out to kill the metastases born of the tumors. Everywhere, in all of Mrs. E’s flesh, scattered or reassembled. _Pretty good death curse._
 
-_“Got to hand it to those Black Riders,” Esmeralda agreed, sounding fascinated._
+_“Got to hand it to those Black Riders,”_ Esmeralda agreed, sounding fascinated.
 
 After a while Lon gently laid the Morgul-knife down on the table, careful not to touch anything else with it. He blew out a long breath, looking desperately weary. “Awright. Lung’s good to go.” He cracked a gap-toothed grin. “Patient’s cancer-free.”
 
@@ -652,7 +652,7 @@ Back to the States eventually, getting a job teaching English, fighting with Sch
 
 Finding a 1949 FL Panhead in need of some factory original love…
 
-#
+<br/>
 
 If proof were needed that not only is there life after death, but that life after death can be good, they used a shot of Casa Noble to revive Mrs. E when they had finished.
 
@@ -742,7 +742,7 @@ The bar had gone dead still. The Dealer looked fascinated. Izzy just looked blan
 
 “That’s how it is. Except for a couple of details. You don’t need to buy a bike: you inherit Zed’s. It's a good one.” She sighed, raked her fingers through her hair. “And you inherit his colors.” She pointed to the crumpled heap of clothing left behind when Zed’s body had vanished. “You’ll notice that those colors are patched ‘President’. That makes you my new boss.”
 
-“Your _boss?_ I don’t know how, and I don’t have time.” Maria sounded desperate. And more than a little pissed off. “And I’m sure as hell not gonna be cutting up old ladies with swords and bringing them back to life. I’m not even like you. If I get shot with rock salt I bleed and scream, I don’t turn into ice and burn away.” She looked at Mrs. E with frightened appeal on her face. “This is crazy.”
+“Your _boss?_ I don’t know how, and I don’t have time.” Maria sounded desperate. And more than a little pissed off. “And I’m sure as hell not gonna be cutting up old ladies with swords and bringing them back to life. I’m not even _like_ you. If I get shot with rock salt I bleed and scream, I don’t turn into ice and burn away.” She looked at Mrs. E with frightened appeal on her face. “This is crazy.”
 
 “Dunno. There are rules and bindings in things like this,” Mrs. E said. “You might not have a choice.”
 
@@ -816,7 +816,7 @@ _“I did.”_
 
 The Dealer smiled that same evil toothy smile, but it was without malice. In fact, it carried a deal of admiration. “I think the Rules are clear on this point,” he said.
 
-#
+<br />
 
 By the time they had all had a big breakfast of _chilaquiles_, and gotten ready to go, the eastern sky was starting to show a faint smudge of morning’s gray light.
 
@@ -863,7 +863,7 @@ Mrs. E nodded. “I can do that. But I’ve got to go now. New body, new places 
 
 “You know what _is_ crazy? I wish… There's a part of me that… well, I would have liked to join the Exclusives. I just couldn't.”
 
-Mrs. E smiled. “Shotgun Maria. Of course there is, and of course you couldn't.” She lit a cigarette, and one for Maria. “You watch yourself though. This shit gives you cancer.”
+Mrs. E smiled. “Shotgun Maria. Of course there is, and of course you couldn't.” She lit a cigarette, and one for Maria. “You watch yourself though. This shit gives you cancer, I hear.”
 
 When Esmeralda started, she made a rough stylish sound so much more interesting than the smooth throb of Izzy’s new machine. The odd little song she had been humming grew louder.
 
