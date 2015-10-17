@@ -1,3 +1,7 @@
+_Copyright&copy; Bill Blondeau, 2014, 2015; all rights reserved_
+<hr/>
+
+
 ###Just Another Route 66 Poker Run
 
 ####The Big T
