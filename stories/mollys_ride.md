@@ -1,3 +1,7 @@
+_Copyright&copy; Bill Blondeau, 2015; all rights reserved_
+<hr/>
+
+
 # Molly's Run
 
 "It's like this," the blind seeress said.
