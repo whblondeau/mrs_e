@@ -1,3 +1,7 @@
+_Copyright&copy; Bill Blondeau, 2014; all rights reserved_
+<hr/>
+
+
 'So... is my bike going to start talking too?'
 
 _"No,"_ said Esmeralda in a sad ghost of a whisper. _"That&apos;s not how your Potential looks, and... seriously, Dude. A crotch rocket? I mean really, a-"_ 
