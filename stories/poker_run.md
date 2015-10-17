@@ -1,3 +1,6 @@
+_Copyright&copy; Bill Blondeau, 2014; all rights reserved_
+<hr/>
+
 ## Poker Run
 
 Dry country sounds different than most places where people go. Especially on hot days; and, well, this was New Mexico in summertime. There&apos;s a kind of sound in the air: the sound of small stirrings of wind, the sound of redbrown rock baking in the daytime sun. Not really a sound you can hear; more of a background noise floor, a small pressure on the ear, with a big hot silence looming over it, empty and still. Only the occasional tick or ping from the cooling motorcycles broke it, and the creak from Izzy&apos;s leathers as he shifted. Boy didn&apos;t know how to hold still, but she didn&apos;t blame him much. It was just damned hot.
