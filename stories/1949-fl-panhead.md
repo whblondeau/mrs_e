@@ -16,7 +16,7 @@ And then one day Stan, visibly failing, was admitted to the hospital and that wa
 
 So yes, there were shocking deaths that were over before you heard about it, and there were drawn-out deaths where the only thing you can do is run away, or step up: step up and be a good final companion. But now she was learning about a third kind of death, the helpless kind. And it didn’t matter that Esmeralda was a machine and not a human—well, no, it mattered, Mrs. E realized. Somehow it made it worse.
 
-<br/>
+
 If you’re listening with the right kind of ears, there’s a sound that power tools make when they’re being used for ugly purposes.
 
 
