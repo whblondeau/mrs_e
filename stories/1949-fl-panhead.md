@@ -19,6 +19,7 @@ So yes, there were shocking deaths that were over before you heard about it, and
 <br/>
 If you’re listening with the right kind of ears, there’s a sound that power tools make when they’re being used for ugly purposes.
 
+
 Pneumatics clatter and whirr and hiss, same as always, but it’s a particularly wicked hiss. Electric motors whine and snarl, and the snarl is just a little pronounced. The rasp and shriek of grinders trouble the ear with a kind of pity, as if the metal being abraded away in fiery gouts of sparks is really feeling pain.
 
 And when it’s your own beloved bike being cut up...
